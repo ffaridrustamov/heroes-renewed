@@ -1,1 +1,1 @@
-# heroes-renewed
+# heroess
